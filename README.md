@@ -1,1 +1,1 @@
-Creator of Mappily at https://www.mappily/info
+Creator of Mappily at https://www.mappily.info
